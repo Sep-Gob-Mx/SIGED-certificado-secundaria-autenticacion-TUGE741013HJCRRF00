@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-TUGE741013HJCRRF00
+TUGE741013HJCRRF00
